@@ -1,2 +1,2 @@
-YouTube - https://www.youtube.com/watch?v=GkccpPCGObc
-discord - https://discord.gg/PAJrh4xhve
+YouTube - Comming soon
+discord - https://discord.gg/sFRE8BwWfw
